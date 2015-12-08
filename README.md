@@ -1,5 +1,5 @@
 # EDCT-GE2550
 
-About this class
+About this class....
 
-How to navigate this course site
+How to navigate this course site...
